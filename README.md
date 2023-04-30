@@ -1,0 +1,7 @@
+# chatgpt-frontend
+
+:)
+
+    loadind...
+     
+:)
